@@ -12,6 +12,8 @@
 
 ![image](https://github.com/LeeMinGyu23/5/assets/117800561/7b47ceda-d655-4a3b-8e95-5a734c6078e4)
 
+![image](https://github.com/LeeMinGyu23/5/assets/117800561/08fff5b0-dc37-4343-afa9-0bf2ff1b2e36)
+
 ![Uploading image.png…]()
 
 
